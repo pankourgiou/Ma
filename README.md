@@ -1,1 +1,2 @@
 download the .py file and run it if on desktop run on cmd cd desktop enter then python file_name.py     it will be generated a 800Mb .html file with 20times checked math operations
+searching in outter space is also importand for achieving new frontiers of math skill and discovering math megastructures progressing this way in life problem solving idea. took 5min job 4 Claude to make a work of a life time(and check it 20 times)...finally precious info says what we call aliens is antitheoretical...:)
